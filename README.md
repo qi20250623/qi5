@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://chiguaqunzhongde.pages.dev/">黑料吃瓜网</a>
 
-点击访问：<a href="https://hj-170.pages.dev/">91视频APP</a>
+点击访问：<a href="https://tt-01.pages.dev/">Twitter中文版</a>
 
 点击访问：<a href="https://cg08-1.pages.dev/">海角吃瓜 </a>
 
